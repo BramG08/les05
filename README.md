@@ -4,7 +4,7 @@
 
  Gingerbread koekemannetjes zorgen gegarandeerd voor een glimlach en daarnaast zijn ze ook nog eens heel erg lekker. Ze worden ook wel peperkoekmannetjes genoemd. Het deeg voor deze gingerbread koekjes is op smaak gebracht met onder andere gemberpoeder, kaneelpoeder en nootmuskaat, wat de koekjes een heerlijk kruidige smaak geeft. Met dit gingerbread koekemannetjes recept kun je 30-40 gemberkoekjes bakken. Dit koekjesrecept komt uit Koekjesbijbel, waarin je ruim 170 koekjesrecepten vindt. Leuke uitstekers voor de koekemannetjes vind je hier!
 
-
+![Gingerbreadman](./artworks-EqXTkYLrPyKhds3k-vat1GA-t500x500.jpg)
 
 
 ## **Ingrediëntenlijst**
